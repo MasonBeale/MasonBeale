@@ -14,7 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-Currently finishing a bachelors degree in Computer Science at the University of Southern Maine
+Recently finished a bachelors degree in Computer Science at the University of Southern Maine
 
 Interested in RnD, Games, and 
 
